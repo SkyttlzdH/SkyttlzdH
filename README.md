@@ -1,4 +1,5 @@
 ## Hey!
+I work for a developing indie game studio.
 We're called Main Character Game Studios. We haven't produced anything yet, but keep on the lookout!
 Big things on the way...
 
